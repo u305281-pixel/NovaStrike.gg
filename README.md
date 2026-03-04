@@ -1,2 +1,0 @@
-# NovaStrike.gg
-Gelişim
